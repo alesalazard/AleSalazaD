@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @AleSalazaD;
-- 👀 I’m interested in cats;
+- 👀 I’m interested in learning JavaScript;
 - 🌱 I’m currently learning Web design;
 - 💞️ I’m looking to collaborate on coding
-- 📫 How to reach me ... Just aproach and extend your hand.
+- 📫 How to reach me ... Look for me in www.linkedin.com/in/alesalazard/
 
 <!---
 AleSalazaD/AleSalazaD is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
