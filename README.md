@@ -3,7 +3,7 @@
 
 - (๑✪ᆺ✪๑) I’m interested in Web design;
 - ଘ(੭ ᐛ )━☆ﾟ.*･｡ﾟ I’m currently learning it in \<Laboratoria>;
-- (˵ •̀ ᴗ - ˵ ) ✧ I’m looking to be the best developer of the Ale's universe;
+- (˵ •̀ ᴗ - ˵ ) ✧ I’m looking to be the best developer of the Ale's Universe;
 - ૮⍝• ᴥ •⍝ა I have :cat::cat::cat: and :dog:
 - =͟͟͞♡Love 👩‍💻, :musical_score:, :clapper:, :book:, 🧶
 - ʚɞ How to reach me ... Look for me at www.linkedin.com/in/alesalazard/
