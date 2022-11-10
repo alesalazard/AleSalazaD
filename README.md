@@ -1,4 +1,4 @@
-![border](/border1.png)
+
 ###  👋 Hi, I’m Ale Salazar  (*ᴗ͈ˬᴗ͈)ꕤ*.ﾟ
 
 - (๑✪ᆺ✪๑) I’m interested in Web design;
