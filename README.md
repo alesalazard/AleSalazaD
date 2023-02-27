@@ -1,7 +1,7 @@
 
 ###  👋 Hi, I’m Ale Salazar  (*ᴗ͈ˬᴗ͈)ꕤ*.ﾟ
 
-- (๑✪ᆺ✪๑) I’m interested in Web design;
+- (๑✪ᆺ✪๑) I’m interested in Web development;
 - ଘ(੭ ᐛ )━☆ﾟ.*･｡ﾟ I learned it in \<Laboratoria>;
 - (˵ •̀ ᴗ - ˵ ) ✧ I’m looking for my first developer work;
 - ૮⍝• ᴥ •⍝ა I have :cat::cat::cat: and :dog:
