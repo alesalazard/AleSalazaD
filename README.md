@@ -3,7 +3,7 @@
 
 - (๑✪ᆺ✪๑) I’m interested in Web development;
 - ଘ(੭ ᐛ )━☆ﾟ.*･｡ﾟ I learned it in \<Laboratoria>;
-- (˵ •̀ ᴗ - ˵ ) ✧ I’m looking for my dream developer job;
+- (˵ •̀ ᴗ - ˵ ) ✧ I’m looking for my dreamed developer job;
 - ૮⍝• ᴥ •⍝ა I have :cat::cat::cat: and :dog:
 - =͟͟͞♡Love 👩‍💻, :musical_score:, :clapper:, :book:, 🧶
 - ʚɞ How to reach me ... Look for me at www.linkedin.com/in/alesalazard/
